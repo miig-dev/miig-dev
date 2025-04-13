@@ -61,7 +61,8 @@ Je suis à la recherche de :
 
 ## 📬 Moi contacteur
 
-📧 `.dev@outlook.fr'📎 LinkedIn : 
+📧 mig.dev@outlook.fr
+📎 LinkedIn : 
 (https://www.linkedin.com/feed/)
 ---
 
